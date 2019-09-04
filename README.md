@@ -1,0 +1,1 @@
+this repo stores records of prophecies
